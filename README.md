@@ -1,1 +1,1 @@
-Designer, Developer, Builder at Human and Chupi.
+Designer, Developer, Builder.
